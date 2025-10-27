@@ -4,4 +4,6 @@ i like stephen stills+neil young, 70s film, libraries, and chatting
 
 i am autistic and sensitive Be nice to me
 
+im iron 3
+
 [![scrobbles](https://lastfm-recently-played.vercel.app/api?user=bebawp)](https://www.last.fm/user/bebawp)
