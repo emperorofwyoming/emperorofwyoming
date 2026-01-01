@@ -1,4 +1,4 @@
-![csny]([https://files.catbox.moe/wykf2w.png])
+![tarkus]([https://files.catbox.moe/jrt5ub.png])
 
 i like csny/elp/s&g, 70s film, libraries, and chatting
 
