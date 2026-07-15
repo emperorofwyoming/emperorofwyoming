@@ -1,6 +1,6 @@
 ![csny](https://files.catbox.moe/wykf2w.png)
 
-i like csny/elp/s&g, 70s film, libraries, and chatting
+i like csny/simon & garfunkel/bob dylan, 70s film, libraries, and chatting
 
 i am autistic and sensitive Be nice to me
 
